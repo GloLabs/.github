@@ -1,1 +1,1 @@
-# GloLabs 🥃
+# GloLabs
